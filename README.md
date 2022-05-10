@@ -1,1 +1,1 @@
-Hi, I am Manjunath, I am Software profession having 10 years of experinece in the software field.
+Hi, I am Manjunath, I am a Software professional having 10 years of experinece in the software field.
